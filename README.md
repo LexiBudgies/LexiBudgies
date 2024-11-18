@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about Budgies
 - 💞️ I’m looking to collaborate on Budgie stuff
 - 📫 How to reach me: Contact my Budgies
-- 😄 Pronouns: Bud/Gie
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: I like Budgies
 
 <!---
